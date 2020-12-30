@@ -1,1 +1,1 @@
-# NewLocoPrivacPpolicy-github.io
+# https://taroutanakayokohama.newlocoprivacpolicy.github.io
